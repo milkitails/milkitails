@@ -1,3 +1,3 @@
 # @milkitails ( ; ω ; ) 
 
-![nuh uh](https://github.com/user-attachments/assets/7790fb88-5ff6-44d9-8a0d-01623073c5ce)
+![nuh uh](https://github.com/user-attachments/assets/c478432c-2984-4d39-861a-86bbaf4445b0)
